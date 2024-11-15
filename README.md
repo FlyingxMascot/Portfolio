@@ -1,1 +1,1 @@
-https://github.com/FlyingxMascot/Portfolio/new/
+https://github.com/FlyingxMascot/Portfolio/
